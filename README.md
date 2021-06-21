@@ -1,1 +1,0 @@
-# Chaturshrungits7dxf
